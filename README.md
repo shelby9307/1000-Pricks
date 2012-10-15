@@ -1,2 +1,2 @@
 1000-Pricks
-===========
+i’m not kidding when i say i saw probably 14 before i was 12.  it was a regular occurrence on my street for some reason.  i didn’t care much, but others around me, when they found out, went nutty and made sweeping changes that would affect things for the next 10 years. in writing this, more i guess.  
